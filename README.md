@@ -1,0 +1,4 @@
+Nietzsche-ente
+==============
+
+nag-nag.
